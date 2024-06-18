@@ -1,4 +1,7 @@
-## Hi there 👋
+## Ну...
+Власть этого аккаунта в руках двух фурри фембойчиков
+- [@kararasenok-gd](https://github.com/kararasenok-gd)
+- [@KailUser](https://github.com/KailUser)
 
 <!--
 **amogus666228bot/amogus666228bot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
